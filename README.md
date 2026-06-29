@@ -29,3 +29,5 @@ Author
 
 Shrijay Raikar
 GitHub | shrijayraikar@gmail.com
+<img width="1366" height="768" alt="US Real Estate 1" src="https://github.com/user-attachments/assets/1d47b14f-b527-41c4-bacc-e0e71e976914" />
+
